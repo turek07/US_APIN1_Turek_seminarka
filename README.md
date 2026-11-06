@@ -4,3 +4,5 @@ Jako Téma bych si rád vybral prezentační software.
 Dobrý den,
 téma seminární vám schvaluji.
 Hana Vojáčková
+
+Děkuji.
